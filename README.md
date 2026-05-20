@@ -1,4 +1,3 @@
 
-<p align="center">
-<img width="613" height="366" alt="Kimi" src="https://github.com/user-attachments/assets/57046602-9bc3-44c8-a24f-971572140337" />
+<p align="center"><img width="736" height="830" alt="paul aron dino beganovic f3" src="https://github.com/user-attachments/assets/d8df2360-43f0-4643-8fc6-234992171265" />
 
