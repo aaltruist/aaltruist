@@ -1,5 +1,5 @@
 
-<p align="center"><img width="463" height="463" alt="oscar piastri (5)" src="https://github.com/user-attachments/assets/f4a38b09-633b-45bb-a7d0-f46269b8081d" />
+<p align="center"><img width="443" height="443" alt="oscar piastri (5)" src="https://github.com/user-attachments/assets/f4a38b09-633b-45bb-a7d0-f46269b8081d" />
 
 <p align="center"> 𝐶𝑖𝑎𝑜 , 𝐼'𝑚 𝐶𝑦𝑛𝑖𝑐 ᵒʳ 𝑃𝑖𝑎𝑠
 
