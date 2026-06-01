@@ -16,7 +16,7 @@
 
 <p align="center"> /-/
 
-<p align="center"><img width="536" height="496" alt="oscar piastri • 2023" src="https://github.com/user-attachments/assets/6a6d4696-fd31-4d2f-8e30-15e3f90a275b" />
+<p align="center"><img width="436" height="396" alt="oscar piastri • 2023" src="https://github.com/user-attachments/assets/6a6d4696-fd31-4d2f-8e30-15e3f90a275b" />
   
 <p align="center"> 𝑆𝑡𝑎𝑡𝑢𝑠 : 
 
