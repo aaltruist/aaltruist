@@ -31,7 +31,7 @@
 
 <p align="center"><img width="626" height="380" alt="Damon Hill (England) won the 1996 Formula 1 World Championship  driving for Williams" src="https://github.com/user-attachments/assets/5048c831-5cc8-42e2-8816-9478a3e9e199" />
   
-<p align="center"> 𝑆𝑡𝑎𝑡𝑢𝑠 : 
+<p align="center"> 𝑆𝑡𝑎𝑡𝑢𝑠 : 𝐷𝑒𝑎𝑑 𝑛 𝐺𝑜𝑛𝑒
 
 
 
