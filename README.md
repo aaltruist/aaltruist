@@ -1,6 +1,6 @@
 
 
-<p align="center"><img width="636" height="527" alt="download (80)" src="https://github.com/user-attachments/assets/7024860d-fbf5-49a1-9c8f-bd64d3fab00f" />
+<p align="center"><img width="436" height="327" alt="download (80)" src="https://github.com/user-attachments/assets/7024860d-fbf5-49a1-9c8f-bd64d3fab00f" />
 
 
 <p align="center"> " 𝐼 𝑑𝑜𝑛'𝑡 𝑡ℎ𝑖𝑛𝑘 𝑡ℎ𝑒𝑟𝑒'𝑠 𝑎𝑛𝑦 𝑝𝑜𝑖𝑛𝑡 𝑑𝑤𝑒𝑙𝑙𝑖𝑛𝑔 𝑜𝑛 𝑎𝑛𝑦𝑡ℎ𝑖𝑛𝑔 𝑙𝑜𝑛𝑔𝑒𝑟 𝑡ℎ𝑎𝑛 𝑦𝑜𝑢 ℎ𝑎𝑣𝑒 𝑡𝑜 ." 
