@@ -1,6 +1,7 @@
 
 
-<p align="center"><img width="436" height="327" alt="download (80)" src="https://github.com/user-attachments/assets/7024860d-fbf5-49a1-9c8f-bd64d3fab00f" />
+<p align="center"><img width="736" height="472" alt="Damon Hill and Michael Schumacher, 1996" src="https://github.com/user-attachments/assets/adfe5fb1-84f8-4573-b245-fef56b01189b" />
+
 
 
 <p align="center"> " 𝐼 𝑑𝑜𝑛'𝑡 𝑡ℎ𝑖𝑛𝑘 𝑡ℎ𝑒𝑟𝑒'𝑠 𝑎𝑛𝑦 𝑝𝑜𝑖𝑛𝑡 𝑑𝑤𝑒𝑙𝑙𝑖𝑛𝑔 𝑜𝑛 𝑎𝑛𝑦𝑡ℎ𝑖𝑛𝑔 𝑙𝑜𝑛𝑔𝑒𝑟 𝑡ℎ𝑎𝑛 𝑦𝑜𝑢 ℎ𝑎𝑣𝑒 𝑡𝑜 ." 
@@ -28,7 +29,7 @@
 <p align="center"> /-/
 
 
-<p align="center"><img width="436" height="327" alt="download (80)" src="https://github.com/user-attachments/assets/7024860d-fbf5-49a1-9c8f-bd64d3fab00f" />
+<p align="center"><img width="736" height="490" alt="Damon Hill (England) won the 1996 Formula 1 World Championship  driving for Williams" src="https://github.com/user-attachments/assets/5048c831-5cc8-42e2-8816-9478a3e9e199" />
   
 <p align="center"> 𝑆𝑡𝑎𝑡𝑢𝑠 : 
 
