@@ -12,8 +12,7 @@
 <p align="center">🇹‌🇺‌🇲‌🇧‌🇱‌🇷‌; 🇱‌🇮‌🇳‌🇰‌🇪‌🇩‌
 
 
-<p align="center"><img width="235" height="132" alt="Warframe - How to unlock Kullervo" src="https://github.com/user-attachments/assets/d74d4ba6-d55a-49b7-a888-d50045741615" />
-
+<p align="center"><img width="735" height="413" alt="All posts • Instagram" src="https://github.com/user-attachments/assets/fd8fdade-6d1a-4260-88d7-63e0384c33eb" />
 
 ---
 
