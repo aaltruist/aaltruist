@@ -12,7 +12,7 @@
 <p align="center">🇹‌🇺‌🇲‌🇧‌🇱‌🇷‌; 🇱‌🇮‌🇳‌🇰‌🇪‌🇩‌
 
 
-<p align="center"<img width="735" height="413" alt="All posts • Instagram" src="https://github.com/user-attachments/assets/e2227d40-5709-4b7f-98a5-13a8a940c816" />
+<p align="center"<img width="635" height="313" alt="All posts • Instagram" src="https://github.com/user-attachments/assets/e2227d40-5709-4b7f-98a5-13a8a940c816" />
 
 
 
