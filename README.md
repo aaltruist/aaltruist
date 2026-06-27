@@ -12,8 +12,6 @@
 <p align="center">🇹‌🇺‌🇲‌🇧‌🇱‌🇷‌; 🇱‌🇮‌🇳‌🇰‌🇪‌🇩‌
 
 
-<p align="center"><img width="645" height="323" alt="All posts • Instagram" src="https://github.com/user-attachments/assets/fd8fdade-6d1a-4260-88d7-63e0384c33eb" />
-
 ---
 
 
